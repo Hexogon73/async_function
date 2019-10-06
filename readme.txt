@@ -1,0 +1,1 @@
+https://proglib.io/p/uproshchaem-razrabotku-asinhronnye-funkcii-python-2019-10-06
